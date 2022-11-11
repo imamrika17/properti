@@ -1,0 +1,2 @@
+# properti
+Bisnis properti
